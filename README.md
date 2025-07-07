@@ -31,4 +31,4 @@
 综上，打造“日本AV免费”关键词第一名的内容，需兼顾权威性、实用性与用户体验。通过精准关键词布局、正版资源推荐及安全观影指南，满足用户多维需求，赢得搜索引擎和用户青睐。
 
 
-<span style="display:none;">[Canonical link] ( ）</span>
+<span style="display:none;">[Canonical link] (https://github.com/dtnnn2611/17000 ）</span>
